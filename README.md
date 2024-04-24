@@ -1,6 +1,6 @@
 ===== Bem vindo ====
 
-meu nome nao importa pois minhas abilidades falam por si so
+meu nome nao importa pois minhas habilidades falam por si so
 
 ![](https://i.pinimg.com/originals/0b/65/ae/0b65ae516272cb553c949fe40b99f5ce.gif)
 ![](https://i.pinimg.com/originals/78/1d/90/781d908b3c34ebd317cced695b57e1ef.gif)
